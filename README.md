@@ -20,7 +20,7 @@
 1. Incredibles
     * *The whole family dynamic is raw and real, something you rarly get from the typical super hero fare.*
 1. Monsters Inc.
-    * *Billy Crystal and John Goodman have a chemistry that rivals Amedeo Avogadro. Amedeo Avogadro as in Avogadro's number. *
+    * *Billy Crystal and John Goodman have a chemistry that rivals Amedeo Avogadro. Amedeo Avogadro as in Avogadro's number.*
 1. Toy Story
     * *Nostalgia out the wazoo, need I say more?*
 1. Up
